@@ -1,1 +1,1 @@
-How do i cut my own leg
+What is the difference between a rifle and a shotgun
