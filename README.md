@@ -1,3 +1,1 @@
-# test000
-
-sex drugs and rock n roll
+what is cotton used for?
