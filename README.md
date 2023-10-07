@@ -1,1 +1,1 @@
-what is cotton used for?
+what is the difference between a rifle and a shotgun?
